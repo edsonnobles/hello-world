@@ -18,7 +18,7 @@ As you can see, I am in love with edX plataform. I've always wished to get into 
 
 My interests are: Heath Care, Clear Energy, Robotics and A.I..
 
-That's all, be kind, be empathic, be honest and most of all be happy!
+That's all, be kind, be empathic, be honest, be humble and most of all be happy!
 
 Thanks for your time.
 Kind regards,
